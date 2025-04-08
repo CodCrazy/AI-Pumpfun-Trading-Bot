@@ -8,7 +8,7 @@ If you have any question or something, feel free to reach out me anytime via tel
 <br>
 #### 🌹 You're always welcome 🌹
 
-Telegram: [@Leo](https://t.me/shinnyleo0912) <br>
+Telegram: [@andersn0093](https://t.me/andersn0093) <br>
 
 ## Features
 
